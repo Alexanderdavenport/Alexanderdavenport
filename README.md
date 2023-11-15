@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Alexanderdavenport
+- 👀 I’m interested in everything
+- 🌱 I’m currently learning IDK
+- 💞️ I’m looking to collaborate on anything
+- 📫 How to reach me (28352@vwnt.net), (28davea@crestviewknights.com)
